@@ -5,7 +5,7 @@ Meu nome é Rhuan L. Chamano mas pode me chamar de Soul Wolf.
 - Estou estudando no [Alura](https://www.alura.com.br)
 - Melhorando no JavaScript
 - Gosto de jogos de videogame 🎮
-- Fun Fact 🤨: Hoje 16:00 lança o floor 2 do Doors :D
+- Fun Fact 🤨: Hoje 16:00 lança o floor 2 do Doors :D (já lançou faz meses, so quis deixar aqui mesmo)
 
 ### Entre em contanto comigo aqui 📫:
 rhuan.chamano@escola.pr.gov.br ou no meu email pessoal:
